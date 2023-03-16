@@ -1,6 +1,6 @@
 # EM BREVE!
 
-O Céu e o Inferno (ISBN 978-85-7328-728-8) digitalizado (manualmente, de parágrafo em parágrafo) em duas opções:
+O Céu e o Inferno (ISBN 978-85-7328-731-8) digitalizado (manualmente, de parágrafo em parágrafo) em duas opções:
 
 - um único arquivo.
 - separado em 6 partes.
